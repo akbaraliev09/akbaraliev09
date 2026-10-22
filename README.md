@@ -44,5 +44,5 @@
 
 ## 📫 Контакты
 
-- 📧 akbaralievamantur41@gail.com
+- 📧 akbaralievamantur41@gmail.com
 - 📄 [Резюме](https://drive.google.com/file/d/1IeaXVY3SNjbVez5HKjgWbqfUthXfsFey/view?usp=drive_link)
